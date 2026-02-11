@@ -1,2 +1,2 @@
-# 277win
+# 277
 jackpot
